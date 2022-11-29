@@ -1,1 +1,3 @@
 # discordbottoken
+
+MTA0MjQ3MzAzMzk3OTQwMDI4Mw.Gj0NAs.cmKeEHzZ-lNfxL1zryAhI0i0fghAKpx0TtSYCM
